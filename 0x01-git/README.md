@@ -1,1 +1,1 @@
-Repo session Yuri Isaac
+Repo session Yuri Isaac is a general in coding 
